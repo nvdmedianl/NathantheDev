@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **info@nuaymnl.nl**
 
-- 📄 Know about my experiences [at the moment my site is still moving and will get a new look after the move](at the moment my site is still moving and will get a new look after the move)
+- 📄 Know about my experiences [at the moment my site is still moving and will get a new look after the move]
 
 - ⚡ Fun fact **I really enjoy watching and traveling on public transport and especially trains**
 
